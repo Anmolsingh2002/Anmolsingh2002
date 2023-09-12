@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Anmolsingh2002
+- 👀 I’m interested in ...programming and some other activities
+- 🌱 I’m currently learning ...java
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me .. singhanmol1296@gmail.com
+--->
